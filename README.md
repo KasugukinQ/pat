@@ -1,2 +1,2 @@
 # For my educational purposes!
-# -Patrick Yray
+Hi! My name is Patrick Dharren Yray! nice to meet chu!
